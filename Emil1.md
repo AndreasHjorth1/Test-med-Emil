@@ -6,7 +6,6 @@ En strukturert plan vil bli nyttig når det kommer til å motvirke det sterke ha
 
 
 
-
 Det er viktig å tenke på at “det å etablere gode planer og strukturer, samt gode sosiale relasjoner mellom prosjektdeltakerne og mellom prosjektleder og eksterne aktører, ser altså ut til å være av stor betydning for hvor god prosjektet utvikler seg i senere faser.”, (D.I.Jakobsen, 2016, s.46). 
 
 
